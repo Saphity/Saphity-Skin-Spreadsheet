@@ -10,18 +10,18 @@ All the skins Saphity has been using, and wants to share.
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
 # [Lucky&SaphityV2](https://drive.google.com/file/d/1CxmnL6l252Th7vry6JB-B1OfqcrMOawX/view?usp=sharing) 
-![](https://gyazo.com/e8a3a16a31c60ee1fac8f6aec0025ebf)
+![](https://i.gyazo.com/e8a3a16a31c60ee1fac8f6aec0025ebf.jpg)
 
 # [Shikke Classic](https://drive.google.com/file/d/17LiMCXWIw5f1zT_BHitEYsjZmue13uPo/view?usp=sharing)
-![](https://gyazo.com/909867bb65f8f639aca91503d95de5a6)
+![](https://gyazo.com/909867bb65f8f639aca91503d95de5a6.jpg)
 
 # [Saphity&Texas ALLROUNDER](https://drive.google.com/file/d/1oBLS_rpJepR7RKlVkbCiS-OX2-LTZqK5/view?usp=sharing)
-![](https://gyazo.com/9ce69ca215fbd468d84c17a7a66d3564)
-![](https://gyazo.com/3913a5d89f78542829d668aa6b856683)
+![](https://gyazo.com/9ce69ca215fbd468d84c17a7a66d3564.jpg)
+![](https://gyazo.com/3913a5d89f78542829d668aa6b856683.jpg)
 
 
 # [Lucky&Saphity HDHR (sky cursor)](https://cdn.discordapp.com/attachments/827234055904165928/836486455727226880/---_SaphityLucky_HDHR_---.osk)
-![](https://gyazo.com/f11e56e19c71a48b51d6ebb5103d2270)
+![](https://gyazo.com/f11e56e19c71a48b51d6ebb5103d2270.jpg)
 
 # [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
