@@ -9,6 +9,9 @@ All the skins Saphity has been using, and wants to share.
 # [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
+# [BP&Saphity (Queen Cursor)]
+![](https://i.gyazo.com/09d8392f694ae2f11e25edaaf70ebb64.jpg)
+
 # [Lucky&SaphityV2](https://drive.google.com/file/d/1CxmnL6l252Th7vry6JB-B1OfqcrMOawX/view?usp=sharing) 
 ![](https://i.gyazo.com/e8a3a16a31c60ee1fac8f6aec0025ebf.jpg)
 
@@ -27,5 +30,3 @@ All the skins Saphity has been using, and wants to share.
 ![](https://osu.ppy.sh/ss/14733957/6cce)
 
 
-# [BP&Saphity (Queen Cursor)]
-![](https://i.gyazo.com/09d8392f694ae2f11e25edaaf70ebb64.jpg)
