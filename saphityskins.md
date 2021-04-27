@@ -1,13 +1,13 @@
 # Saphity-Skin-Spreadsheet
-All the skins Saphity has been using, and wants to share.
+(https://i.ppy.sh/54bfcd2dec4630d8ccc9234166c9d93d17ffa026/68747470733a2f2f692e696d6775722e636f6d2f6151414e6c76682e6a7067)
 
-# [HP Bar](https://i.imgur.com/dh79Bwo.png)
-![](https://i.imgur.com/dh79Bwo.png)
+
+All the skins Saphity has been using, and wants to share.
 
 # If a link is down please reach me on this thread or Saphity#0101
 
-# [- colorbog(Woohoo Edition)](https://mega.nz/file/YeY2iRiJ#HAa1LmI1PI6fXyd-BoyLYYMJZD7dgnvVRdLYfvIi-cE) 
-![](https://osu.ppy.sh/ss/16187051/4633)
+# [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
+![](https://osu.ppy.sh/ss/16517862/f7d5)
 
 # [bees](https://mizaru.s-ul.eu/TNinjFkw) 
 ![](https://osu.ppy.sh/ss/11775775)
