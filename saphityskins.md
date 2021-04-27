@@ -16,7 +16,7 @@ All the skins Saphity has been using, and wants to share.
 ![](https://gyazo.com/909867bb65f8f639aca91503d95de5a6.jpg)
 
 # [Saphity&Texas ALLROUNDER](https://drive.google.com/file/d/1oBLS_rpJepR7RKlVkbCiS-OX2-LTZqK5/view?usp=sharing)
-![](https://i.gyazo.com/3913a5d89f78542829d668aa6b856683.png)
+![](https://i.gyazo.com/317c4c017319533a5d7291543ebfcdc9.png)
 ![](https://i.gyazo.com/3913a5d89f78542829d668aa6b856683.png)
 
 
