@@ -6,7 +6,7 @@ All the skins Saphity has been using, and wants to share.
 
 # If a link is down please reach me on this thread or Saphity#0101
 
-# [Bloo&Saphity DTx (Furious Cursor)]
+# [Bloo&Saphity DTx (Furious Cursor)](https://cdn.discordapp.com/attachments/582747881014951956/836491028772028436/-_BlooSaphity_DT_-.osk)
 ![](https://i.gyazo.com/b5699bd7280e990abe842ae677d8f8a6.jpg)
 ![](https://i.gyazo.com/b017a936c3edce4e0dc72fa46e8bb597.jpg)
 
