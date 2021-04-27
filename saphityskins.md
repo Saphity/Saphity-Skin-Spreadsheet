@@ -25,3 +25,7 @@ All the skins Saphity has been using, and wants to share.
 
 # [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
+
+
+# [BP&Saphity (Queen Cursor)]
+![](https://i.gyazo.com/09d8392f694ae2f11e25edaaf70ebb64.jpg)
