@@ -9,17 +9,19 @@ All the skins Saphity has been using, and wants to share.
 # [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
-# [bees](https://mizaru.s-ul.eu/TNinjFkw) 
-![](https://osu.ppy.sh/ss/11775775)
+# [Lucky&SaphityV2](https://drive.google.com/file/d/1CxmnL6l252Th7vry6JB-B1OfqcrMOawX/view?usp=sharing) 
+![](https://gyazo.com/e8a3a16a31c60ee1fac8f6aec0025ebf)
 
-# [- stoofvarvedit -](https://mega.nz/file/RDgSgQhb#IgIQOoVFT_abhiAzmR8qEFQ-E-Y4vmiAxFmHuxfV83o)
-![](https://osu.ppy.sh/ss/15975010/428c)
+# [Shikke Classic](https://drive.google.com/file/d/17LiMCXWIw5f1zT_BHitEYsjZmue13uPo/view?usp=sharing)
+![](https://gyazo.com/909867bb65f8f639aca91503d95de5a6)
 
-# [- ryan(mystia)edit -](https://mega.nz/file/UGgmRCJa#aJeh65pjSPl_lT-rKkT9R3tPYYtkBVpJNWfimEEkgC4)
-![](https://osu.ppy.sh/ss/15871534/3bf7)
+# [Saphity&Texas ALLROUNDER](https://drive.google.com/file/d/1oBLS_rpJepR7RKlVkbCiS-OX2-LTZqK5/view?usp=sharing)
+![](https://gyazo.com/9ce69ca215fbd468d84c17a7a66d3564)
+![](https://gyazo.com/3913a5d89f78542829d668aa6b856683)
 
-# [- tony varv -](https://mega.nz/file/5WZ1TCDb#kGvBLznI9aH-KxbBQsIkOl5Lumaeere0Jn9rj7qaP4Q)
-![](https://osu.ppy.sh/ss/15626158/88a1)
+
+# [Lucky&Saphity HDHR (sky cursor)](https://cdn.discordapp.com/attachments/827234055904165928/836486455727226880/---_SaphityLucky_HDHR_---.osk)
+![](https://gyazo.com/f11e56e19c71a48b51d6ebb5103d2270)
 
 # [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
