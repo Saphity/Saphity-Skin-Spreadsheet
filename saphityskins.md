@@ -13,7 +13,7 @@ All the skins Saphity has been using, and wants to share.
 # [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
-# [Saphity HDDT v3](https://cdn.discordapp.com/attachments/582747881014951956/836497335902535690/---_Saphity_HDDT_v3_---.osk)
+# [Saphity HDDT v3 (Soft Charming Cursor)](https://cdn.discordapp.com/attachments/582747881014951956/836497335902535690/---_Saphity_HDDT_v3_---.osk)
 ![](https://i.gyazo.com/53aafbe8f80e036014527c0cd6476182.png)
 ![](https://i.gyazo.com/30f4067b3033fd031bd35a0ed3715cd4.png)
 
