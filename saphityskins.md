@@ -1,5 +1,5 @@
 # Saphity-Skin-Spreadsheet
-![](https://osu.ppy.sh/ss/16517862/f7d5)
+![](https://i.imgur.com/aQANlvh.jpg)
 
 
 All the skins Saphity has been using, and wants to share.
