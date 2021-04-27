@@ -6,6 +6,10 @@ All the skins Saphity has been using, and wants to share.
 
 # If a link is down please reach me on this thread or Saphity#0101
 
+# [Bloo&Saphity DTx (Furious Cursor)]
+![](https://i.gyazo.com/b5699bd7280e990abe842ae677d8f8a6.jpg)
+![](https://i.gyazo.com/b017a936c3edce4e0dc72fa46e8bb597.jpg)
+
 # [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
@@ -28,5 +32,7 @@ All the skins Saphity has been using, and wants to share.
 
 # [- boop -](https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
+
+
 
 
