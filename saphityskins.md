@@ -1,5 +1,5 @@
 # Saphity-Skin-Spreadsheet
-(https://i.ppy.sh/54bfcd2dec4630d8ccc9234166c9d93d17ffa026/68747470733a2f2f692e696d6775722e636f6d2f6151414e6c76682e6a7067)
+(https://i.imgur.com/aQANlvh.jpg)
 
 
 All the skins Saphity has been using, and wants to share.
