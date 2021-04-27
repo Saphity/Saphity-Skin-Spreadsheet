@@ -16,8 +16,8 @@ All the skins Saphity has been using, and wants to share.
 ![](https://gyazo.com/909867bb65f8f639aca91503d95de5a6.jpg)
 
 # [Saphity&Texas ALLROUNDER](https://drive.google.com/file/d/1oBLS_rpJepR7RKlVkbCiS-OX2-LTZqK5/view?usp=sharing)
-![](https://i.gyazo.com/9ce69ca215fbd468d84c17a7a66d3564.jpg)
-![](https://i.gyazo.com/3913a5d89f78542829d668aa6b856683.jpg)
+![](https://i.gyazo.com/3913a5d89f78542829d668aa6b856683.png)
+![](https://i.gyazo.com/3913a5d89f78542829d668aa6b856683.png)
 
 
 # [Lucky&Saphity HDHR (sky cursor)](https://cdn.discordapp.com/attachments/827234055904165928/836486455727226880/---_SaphityLucky_HDHR_---.osk)
