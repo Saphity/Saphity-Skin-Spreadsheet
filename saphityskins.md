@@ -13,6 +13,9 @@ All the skins Saphity has been using, and wants to share.
 # [Lucky&Saphity AR11](https://drive.google.com/file/d/1IId7GUWZaAgGYdeRusWD0YbGsV_uXlKQ/view?usp=sharing) 
 ![](https://osu.ppy.sh/ss/16517862/f7d5)
 
+# [Saphity HDDT v3](https://cdn.discordapp.com/attachments/582747881014951956/836497335902535690/---_Saphity_HDDT_v3_---.osk)
+![](https://i.gyazo.com/53aafbe8f80e036014527c0cd6476182.png)
+
 # [BP&Saphity (Queen Cursor)](https://cdn.discordapp.com/attachments/582747881014951956/836492284387393536/---_BPSaphity_AR11_---.osk)
 ![](https://i.gyazo.com/09d8392f694ae2f11e25edaaf70ebb64.jpg)
 
