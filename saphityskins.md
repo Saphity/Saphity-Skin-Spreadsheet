@@ -4,7 +4,11 @@
 
 All the skins Saphity has been using, and wants to share.
 
-# If a link is down please reach me on this thread or Saphity#0101
+# If a link is down please reach me on this thread or Saphity#8128
+
+# [Saphity Simple](https://drive.google.com/file/d/18gayC98U8hrmXtUlya2JNnWf5ls86uFJ/view?usp=sharing)
+![](https://osu.ppy.sh/ss/16632988/94b1.jpg)
+
 
 # [Bloo&Saphity DTx (Furious Cursor)](https://cdn.discordapp.com/attachments/582747881014951956/836491028772028436/-_BlooSaphity_DT_-.osk)
 ![](https://i.gyazo.com/b5699bd7280e990abe842ae677d8f8a6.jpg)
